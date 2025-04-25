@@ -9,7 +9,7 @@ before you use the name 'milli' on me, please read my prns cc ^_^.
 iwcare if i'm around a large crowd.
 
 
-![image](https://github.com/user-attachments/assets/23446934-7385-4460-bf53-b263910f3282)
+![image](https://github.com/user-attachments/assets/563908de-03bb-480d-bff1-09fad213f168)
 
 https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    https://strwb3rrijane.straw.page/
 

@@ -12,3 +12,8 @@ iwcare if i'm around a large crowd.
 ![image](https://github.com/user-attachments/assets/23446934-7385-4460-bf53-b263910f3282)
 
 https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    https://strwb3rrijane.straw.page/
+
+
+screenshot of the day (special because its from cherri)
+![image](https://github.com/user-attachments/assets/86470930-70c3-425e-b2e2-7207e7cbb642)
+

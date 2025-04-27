@@ -16,5 +16,6 @@ https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    ht
 
 screenshot of the day
 
-![image](https://github.com/user-attachments/assets/c91dfbb9-5f37-4827-9ab7-0045966c58e2)
+![image](https://github.com/user-attachments/assets/dc5b461c-7a22-40a1-a269-ab88be55ccfd)
+
 

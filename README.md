@@ -14,8 +14,8 @@ iwcare if i'm around a large crowd.
 https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    https://strwb3rrijane.straw.page/
 
 
-screenshot of the day
+photo of the day
 
-![image](https://github.com/user-attachments/assets/dc5b461c-7a22-40a1-a269-ab88be55ccfd)
+![image](https://github.com/user-attachments/assets/ecaa09c8-ff30-4ad3-9d1c-e4f0772f09e9)
 
 

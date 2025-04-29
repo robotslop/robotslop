@@ -17,6 +17,7 @@ https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    ht
 
 photo of the day
 
-![image](https://github.com/user-attachments/assets/ecaa09c8-ff30-4ad3-9d1c-e4f0772f09e9)
+![image](https://github.com/user-attachments/assets/3f9d01b0-1e95-4a19-983a-e31b6516d234)
 
+remember to be alpha guys
 

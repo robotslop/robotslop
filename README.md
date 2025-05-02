@@ -17,6 +17,6 @@ https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    ht
 
 photo of the day
 
-![image](https://github.com/user-attachments/assets/4560c458-ee3b-4581-acf5-415a1e38529f)
+![image](https://github.com/user-attachments/assets/1c844c0c-e3dc-4742-893d-f093e25805e4)
 
 

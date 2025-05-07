@@ -8,6 +8,7 @@ before you use the name 'milli' on me, please read my prns cc ^_^.
 
 iwcare if i'm around a large crowd.
 
+i forget to mention this but i do allow inspo! Just not full on copying, thank you.  ^_^
 
 ![image](https://github.com/user-attachments/assets/563908de-03bb-480d-bff1-09fad213f168)
 

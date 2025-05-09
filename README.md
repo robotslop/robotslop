@@ -18,7 +18,5 @@ https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    ht
 
 photo of the day
 
-![image](https://github.com/user-attachments/assets/852189f3-7993-4248-9c43-a65dcea42697)
-
-im having femboy allegations against me
+![image](https://github.com/user-attachments/assets/e750f976-4af4-481c-8e27-fe04db34ed57)
 

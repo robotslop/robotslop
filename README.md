@@ -1,4 +1,7 @@
-![image](https://github.com/user-attachments/assets/6aea10ab-0d0e-48aa-8681-da19360805f4)
+(art creds go to, https://x.com/deepseawav , https://www.pinterest.com/geeemast/ , and https://x.com/maymadnesss.)
+
+![image](https://github.com/user-attachments/assets/263cc745-8de3-45b5-b356-3c97ec1a0b2e)
+
 
 
 
@@ -16,7 +19,5 @@ https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    ht
 
 
 
-photo of the day
 
-![image](https://github.com/user-attachments/assets/e750f976-4af4-481c-8e27-fe04db34ed57)
 

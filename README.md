@@ -15,7 +15,7 @@ i forget to mention this but i do allow inspo! Just not full on copying, thank y
 
 ![image](https://github.com/user-attachments/assets/563908de-03bb-480d-bff1-09fad213f168)
 
-https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    https://strwb3rrijane.straw.page/
+https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    https://strwb3rrimrrealismsstrawpage.straw.page/
 
 
 

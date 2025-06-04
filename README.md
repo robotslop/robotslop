@@ -19,8 +19,7 @@ https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    ht
 
 
 
-uhm
-![image](https://github.com/user-attachments/assets/571d322a-8a7d-49e3-95fd-19f11ea6365a)
+![image](https://github.com/user-attachments/assets/2d242179-506f-4c73-943b-d8b47641f550)
 
 
 

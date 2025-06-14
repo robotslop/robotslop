@@ -18,8 +18,8 @@ i forget to mention this but i do allow inspo! Just not full on copying, thank y
 https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri     /    https://strwb3rrimrrealismsstrawpage.straw.page/
 
 
-
-![image](https://github.com/user-attachments/assets/2d242179-506f-4c73-943b-d8b47641f550)
+apple
+![image](https://github.com/user-attachments/assets/6ba79755-48e1-4c33-904e-e88f6b603cb0)
 
 
 
